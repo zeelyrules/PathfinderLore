@@ -1,0 +1,1 @@
+Les araignées de cale sont des grands arachnides velus tissant leurs toiles dans le fond de cale des bateaux, se laissant parfois tomber sur les malheureux en charge de les nettoyer.

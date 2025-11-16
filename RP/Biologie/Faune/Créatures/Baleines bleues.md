@@ -1,0 +1,5 @@
+_Cet énorme mammifère aquatique à la couleur gris-bleu possède une
+large nageoire caudale et une immense gueule garnie de fanons_
+
+L’imposante baleine bleue est l’un des plus gros animaux marins, mais elle se montre généralement pacifique envers tout  ce qu’elle ne perçoit pas comme une menace. Elle se nourrit de minuscules animaux et ne considère donc pas les bateaux ni les humains comme un repas potentiel : elle préfère manger des millions d’invertébrés appelés du krill, qu’elle avale à travers ses fanons par grandes goulées. Le plus dangereux chez la baleine bleue, en dehors de sa taille, c’est sa queue, un appendice capable de faire chavirer des bateaux et de tuer des humanoïdes.
+Ces énormes mammifères vivent dans toutes les mers et tous les océans de Golarion. Une baleine bleue adulte mesure une trentaine de mètres de long pour deux cents tonnes.

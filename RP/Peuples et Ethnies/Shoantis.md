@@ -1,4 +1,4 @@
-Autrefois maîtres de toute la [[Varisie]], les shoantis ont beaucoup souffert de l'expansionnisme du [[Chéliax]] et peu sont ceux qui se rappellent encore des noms des tribus qui ont été éliminées.
+Autrefois maîtres de toute la [[Varisie]], les shoantis ont beaucoup souffert de l'expansionnisme du [[Cheliax]] et peu sont ceux qui se rappellent encore des noms des tribus qui ont été éliminées.
 Ce peuple souvent nomade considère toujours la Varisie comme sienne mais sa population se répartit désormais principalement sur le [[Plateau de Storval]], les [[Hautes Terres de Velashu]], les [[Terres-Cendres]] et les [[Collines de Curchain]]
 
 On dénombre aujourd'hui sept tribus shoanties :

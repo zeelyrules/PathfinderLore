@@ -1,1 +1,1 @@
-Capitale du [[Chéliax]]
+Capitale du [[Cheliax]]

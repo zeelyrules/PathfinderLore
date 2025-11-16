@@ -1,0 +1,7 @@
+Cette créature humanoïde possède de longues dents acérées et sa peau pâle semble avoir été étirée autour d’un corps affamé.
+
+Les goules sont des morts-vivants qui hantent les cimetières et dévorent les cadavres. Selon certaines légendes, les premières goules auraient été des humains cannibales revenus de la mort à cause de leurs appétits contre nature. D’autres parlent plutôt d’humains qui se seraient repus en dévorant les cadavres en putréfaction de leurs frères puis qui seraient morts à cause des terribles maladies qu’ils avaient ainsi contractées. Quoi qu’il en soit, la véritable origine de ces charognards morts-vivants reste vague.  
+  
+Les goules se tapissent aux abords de la civilisation (dans ou près des cimetières, ou dans les égouts des villes), là où elles peuvent mettre la main sur d’amples réserves de leur nourriture favorite. Elles préfèrent les corps en décomposition et enterrent d’ailleurs souvent leurs victimes pendant un moment afin d’en améliorer le goût. Si la faim les y pousse, elles dévorent parfois des proies fraîchement tuées. La plupart des goules de la surface vivent de manière primitive mais certaines rumeurs parlent de cités souterraines composées de goules dirigées par des prêtres vénérant d’anciens dieux cruels ou d’étranges seigneurs-démons de la faim.  
+  
+Les habitudes alimentaires de ces goules « civilisées » n’en sont pas pour autant moins horribles. En fait, l’idée d’une table bien dressée lors d’un banquet de goules est peut-être même plus terrifiante que celle d’un repas fraîchement extrait de son cercueil.

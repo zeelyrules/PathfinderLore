@@ -7,4 +7,4 @@ Animal sacré : oiseau chanteur
 Préceptes : Sois en paix, pratique et perfectionne une forme d'art, dirige par l'exemple, vois la beauté en toutes choses
 Interdits : Détruire ou permettre la destruction d'art, sauf pour sauver une vie ou accomplir une plus grande oeuvre, refuser une reddition
 
-Demi-soeur de Zon-Kuthon
+Demi-soeur de [[Zon-Kuthon]]

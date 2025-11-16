@@ -1,1 +1,1 @@
-Gobelins de l'ile de Ventpluvieux
+[[Gobelins]] de l’île de Ventpluvieux, dans le nord des [[Chaînes]].

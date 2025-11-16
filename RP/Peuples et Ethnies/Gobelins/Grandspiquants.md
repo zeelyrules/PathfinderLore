@@ -1,1 +1,3 @@
-Gobelins de la baie de la baleine osseuse
+[[Gobelins]] de la baie de la baleine osseuse, dans le sud des [[Chaînes]].
+Les gobelins de la tribu de grandspiquants voient leurs canoes de fortune autant comme des moyens de transport que comme des armes. Ces embarcations ont en general une proue equipee d'un belier avec des piques tordues. Propulsees par une dizaine de rameurs gobelins, elles sont capables de frapper un bateau avec une force surprenante. Le premier contact d'une bataille est souvent décisif, et les gobelins abandonnent leur radeau pour rejoindre le rivage a la nage et attendre que le bateau attaque coule.
+Si l'engagement commence mal pour les grandspiquants, ils preferent battre en retraite, sachant que leurs chances contre un equipage alerte et conscient de leur presence sont bien maigres.

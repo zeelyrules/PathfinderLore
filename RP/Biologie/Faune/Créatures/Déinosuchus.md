@@ -1,0 +1,4 @@
+_Cet immense reptile ressemble à un gigantesque alligator. Il émerge de l’eau en claquant rapidement des dents et sa mâchoire crisse avec un bruit menaçant à chaque claquement_
+
+Le déinosuchus, long de 10 à 15 mètres et pesant 6 tonnes, est le plus grand de tous les [[Crocodiliens]] connus. Il possède un museau plus rond que le crocodile classique et ressemble plus à un alligator géant. C’est un chasseur patient, qui est capable de rester immobile et invisible sous la surface de l’eau. Seuls ses naseaux émergent et il peut ainsi dissimuler le reste de son énorme corps à ses proies même les plus alertes.
+Pendant le combat, le déinosuchus broie sa proie entre ses puissantes mâchoires et, pendant que les os de son repas craquent et que sa chair se déchire, il tient ses autres adversaires à distance par des coups de sa puissante queue.

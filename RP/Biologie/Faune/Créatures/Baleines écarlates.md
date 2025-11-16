@@ -1,0 +1,3 @@
+_Cette baleine ressemble aux autres, si ce n’est ses énormes crocs, ses mâchoires puissantes à l’air inquiétant et sa peau rouge sang_
+
+Si la plupart des cétacés sont des créatures dociles, la baleine écarlate est un chasseur agressif qui s’efforce de tuer sa proie au plus vite, quelle qu’elle soit, même les plus grosses et les plus puissantes. Elle possède une mâchoire garnie de crocs mesurant de 30 à 60 centimètres de long et sa morsure est capable de déchirer la chair comme de broyer les os. Une baleine écarlate adulte mesure généralement une quinzaine de mètres de long pour trente tonnes.

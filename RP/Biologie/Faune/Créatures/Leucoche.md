@@ -1,0 +1,2 @@
+Cette espèce d’échinodermes tenaces vit en eaux profondes. Les leucoches s’accrochent souvent à la coque des bateaux afin de se nourrir des déchets que l’équipage jette par-dessus bord. Ainsi nourris, ils grandissent à une vitesse alarmante : une catégorie de taille par semaine. Ils deviennent si gros qu’ils gênent la vitesse et la
+maniabilité du bateau.

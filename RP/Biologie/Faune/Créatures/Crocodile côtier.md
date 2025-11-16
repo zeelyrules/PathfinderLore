@@ -1,0 +1,3 @@
+_Ce crocodile est près d’une demi-fois plus large qu’un crocodile normal et, alors qu’il se jette sur une proie, sa longue gueule entrouverte bardée de dents donne l’impression qu’il est en train de sourire_
+
+Natifs des estuaires salés des tropiques et des rivières qui les alimentent, les crocodiles côtiers comptent parmi les plus grands [[Crocodiliens]] non primordiaux de Golarion. Les adultes peuvent atteindre une taille de 6 mètres et peser plus de 900 kilos. Ils sont généralement plus léthargiques que leurs plus petits congénères et passent leurs journées à dormir au soleil, sur la terre ferme ou dans les eaux peu profondes, et leurs nuits à chasser.
